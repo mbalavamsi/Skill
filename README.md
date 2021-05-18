@@ -1,4 +1,4 @@
 # Skill
-Early feet
+Early foot
 
 Starting to experience new tech.
